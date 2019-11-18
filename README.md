@@ -34,11 +34,11 @@
 
       Función: Cajera de una heladería, situada en la Expo´92.
 
-###Formación profesional
+### Formación profesional
 
 - **2018** Técnico Superior en Administración y Finanzas.
 
-###Otros Datos
+### Otros Datos
 
 - Carnet de conducir B1
 - Persona responsable, con iniciativa y trabajadora.
